@@ -1,4 +1,6 @@
 ### Hi there 👋
+im grade 9 at Saint Mother Teresa High School
+
 🌱 I’m currently learning about coding 
 
 💬 Ask me about anything
